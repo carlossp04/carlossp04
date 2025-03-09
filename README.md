@@ -79,7 +79,7 @@ Since then, I have explored various aspects of technology, from working with Ard
 **Other aspects about me:**
 
 Outside of computers,  i am very passionate about exotics cars, Formula 1, Finance and stocks, History from 1914 onwards, more specifically military history and technology, particularly aircraft, armored vehicles, and advanced weapon systems. I find the engineering, strategy, and historical impact of these machines fascinating.
-Additionally, I have been playing the guitar since I was 8 years old, i've played in several bands and performed at musical events. I enjoy listening The Beatles, Paul McCartney/Wings, Queen, The Rolling Stones, Elton John, Phil Collins, Manolo García, Frank Sinatra, Fleetwood Mac, and U2.
+Additionally, I have been playing the guitar since I was 8 years old, i've played in several bands and performed at musical events. I enjoy listening to The Beatles, Paul McCartney/Wings, Queen, The Rolling Stones, Elton John, Phil Collins, Manolo García, Frank Sinatra, Fleetwood Mac, and U2.
 
 ## 🇪🇸: More about me / Más sobre mí:
 
